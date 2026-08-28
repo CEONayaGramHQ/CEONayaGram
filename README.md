@@ -1,5 +1,5 @@
 # CEONayaGram
-### Hi there, I'm CEO NayaGramHQ 💎👋
+### Hi there, I'm CEO NayaGram 💎👋
 
 **Founder & CEO of NayaGram - Building AI-powered news & information platforms.**
 
